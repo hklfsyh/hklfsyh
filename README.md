@@ -21,5 +21,4 @@ I’m eager to connect with fellow tech enthusiasts, innovators, and visionaries
 
 #### My Contact:
 - 📧 Email: haikalafifsyah@gmail.com
-- 📱 Phone: +62 851-5668-1946
 - 📍 Location: Kabupaten Tangerang, Banten, Indonesia
