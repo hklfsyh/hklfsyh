@@ -21,4 +21,5 @@ I’m eager to connect with fellow tech enthusiasts, innovators, and visionaries
 
 #### My Contact:
 - 📧 Email: haikalafifsyah@gmail.com
-- 📍 Location: Kabupaten Tangerang, Banten, Indonesia
+- 📍 Location 1: Kabupaten Tangerang, Banten, Indonesia
+- 📍 Location 2: Depok, Jawa Barat, Indonesia
